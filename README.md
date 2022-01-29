@@ -1,6 +1,10 @@
 ### Hi there 👋
+### I'm Nikhil (22 y.o)!😎
+### I'd like to do projects reated to anime. 👻
+### 📃 I'm currently learning
 
-<!--
+
+
 **nickzp007/nickzp007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
