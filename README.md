@@ -1,6 +1,6 @@
 #### Hi there 👋
-#### I'm Nikhil (22 y.o)!😎
-### I'd like to do projects reated to anime. 👻
+#### I'm Nikhil (22 y.o)!😎. 
+#### I'd like to do projects reated to anime. 👻
 
 
 
