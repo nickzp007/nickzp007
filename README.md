@@ -1,9 +1,7 @@
-#### Hi there 👋. I'm Nikhil (22 y.o)!😎. I'd like to do projects reated to anime. 👻
+### Hi there 👋. I'm Nikhil (22 y.o)!😎. I'd like to do projects reated to anime. 👻
+### My Hobbies are :
+![final_621fc05d2f92d91d9af8a5c5_585992](https://user-images.githubusercontent.com/96485614/156431157-2f1c87a7-bb1e-408d-8ecd-58df1dcff92f.gif)
 
 
 
 
-
-
-
-![68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f53576f536b4e36447854737a71494b4571762f67697068792e676966](https://user-images.githubusercontent.com/96485614/151500101-b6cb0e2f-3b7d-4df4-8f6f-a6099d4909b3.gif)
